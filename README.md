@@ -97,7 +97,7 @@ vote_neutral
 * @BigBorg
 
 ## 交流
-群已经加不进，可以先加微信：lzjun567 拉你入群
+群已经加不进，可以先加微信：lzjun567 将拉你入群
 
 ![群](https://dn-mhke0kuv.qbox.me/30f70119cd4a840560d4.jpeg)
 
